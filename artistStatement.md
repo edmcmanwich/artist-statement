@@ -1,7 +1,7 @@
-In my artwork I alter and reproduce ubiquitous visual signs in an effort
-to explore the power structures that allow these signs to come into
-being. My works deviate between a straightforward unmasking of the veil
-of autonomy that hides the social relationships behind these signs to
+In my work I dissect the meaning-making practices of power structures.
+Exploring subjects as diverse as bald eagles, the NSA, a DVD
+screensaver, and Store Quest storage units, my work deviates between a
+straightforward unmasking of the veil of autonomy behind these signs to
 moments of semiotic play meant to inject elements of hostility,
 confusion, rebellion, and the absurd.
 
