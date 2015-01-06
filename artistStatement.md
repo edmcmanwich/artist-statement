@@ -10,16 +10,27 @@ historical or contemporary text. Situationists-related literature,
 psychedelic poetry, and graphic novels have all served as catalysts for
 new pieces. Often they start as sources for the collection of a wide
 range of materials including objects, writing, image, and video. As
-these signs are worked over and treated the originating text becomes
+these elements are worked over and treated the originating text becomes
 more of a framework for understanding and reimagining the specific
 social interests and ideologies that can shape interpretation. The
 result of this process is the production of new work where unfamiliar
-combinations of semiotic modes can reveal complex relationships between
-man and animal or undo the autonomy of a corporate logo.
+combinations of semiotic modes can perform tasks like revealing the
+complex relationships between man and animal or upending the alienation
+of a corporate logo.
 
 Attempting to understand how power structures use social rules and
 constraints to produce and maintain specific version of reality is a key
-component to my practice.
+component to my practice. To this end my collaborations with other
+individuals and groups of people have served as invaluable spaces for
+research and experimentation. My participation in *neverhitsend* has
+been particularly important to this area. Formed in the wake of the
+Edward Snowden NSA leaks we are a group of artists from various schools
+and regions whose projects focus on performatively researching
+communications ideology. Organizing primarily through a continuously in
+progress unsent Gmail draft our collective work has allowed me to
+investigate concepts like the digital post-private self that may be
+thematically situated outside of the primary concerns of my own
+practice.
 
 The intention of my work is not to produce new meanings that should be
 read in place of the originals. This would have the same effect
