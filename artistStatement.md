@@ -1,9 +1,9 @@
 In my work I dissect the meaning-making practices of power structures.
-Exploring subjects as diverse as bald eagles, the NSA, a DVD
-screensaver, and Store Quest storage units, my work deviates between a
-straightforward unmasking of the veil of autonomy behind these signs to
-moments of semiotic play meant to inject elements of hostility,
-confusion, rebellion, and the absurd.
+Exploring subjects as diverse as bald eagles, book scanners, DVD
+screensavers, and Store Quest storage units, my work deviates between a
+straightforward unmasking of the veil of autonomy behind their
+signifiers to moments of semiotic play meant to inject elements of
+hostility, confusion, disquiet, and the absurd.
 
 I approach my work with an understanding of power structures as semiotic
 systems. Like all semiotic systems they are intrinsically social in
