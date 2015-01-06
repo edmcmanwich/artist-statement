@@ -1,30 +1,25 @@
-In my work I dissect the meaning-making practices of power structures.
-Exploring subjects as diverse as bald eagles, book scanners, DVD
-screensavers, and Store Quest storage units, my work deviates between a
-straightforward unmasking of the veil of autonomy behind their
-signifiers to moments of semiotic play meant to inject elements of
-hostility, confusion, disquiet, and the absurd.
+In my work, I dissect social practices of meaning-making in an attempt
+to open up new interpretations of the self. Exploring subjects as
+diverse as bald eagles, book scanners, DVD screensavers, and Store Quest
+storage units, my work deviates between a straightforward unmasking of
+the veil of autonomy behind signifiers to moments of semiotic play meant
+to inject elements of hostility, confusion, disquiet, and the absurd.
 
-I approach my work with an understanding of power structures as semiotic
-systems. Like all semiotic systems they are intrinsically social in
-their conditions, content, and construct. They rely on social rules and
-constraints to define a specific relationship between producer,
-receiver, and signifier. This determines what meaning can be produced,
-how it can be received, and what signifiers can be used to produce and
-maintain a specific version of reality.
+My individual works usually find their locus in some variety of
+historical or contemporary text. Situationists-related literature,
+psychedelic poetry, and graphic novels have all served as catalysts for
+new pieces. Often they start as sources for the collection of a wide
+range of materials including objects, writing, image, and video. As
+these signs are worked over and treated the originating text becomes
+more of a framework for understanding and reimagining the specific
+social interests and ideologies that can shape interpretation. The
+result of this process is the production of new work where unfamiliar
+combinations of semiotic modes can reveal complex relationships between
+man and animal or undo the autonomy of a corporate logo.
 
-In my work I try to upset the relationship between producer, receiver,
-and signifier. In *Maneuvers*, for example, image and text compete to
-define the referent of a sign and in the process reveals a complex
-relationship between man and animal. Similarly, in the series *This is
-Not a Pipe*, language and sign are mismatched to undo the autonomy of a
-corporate logo.
-
-Almost every piece is modeled closely after a found object or sign. This
-means that materials and processes can vary greatly between each one.
-However, there is consistent methodology in my production. Each piece is
-conceptually driven and it is this concept that determines the forms and
-materials used.
+Attempting to understand how power structures use social rules and
+constraints to produce and maintain specific version of reality is a key
+component to my practice.
 
 The intention of my work is not to produce new meanings that should be
 read in place of the originals. This would have the same effect
