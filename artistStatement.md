@@ -2,7 +2,7 @@ In my work, I dissect social practices of meaning-making in an attempt
 to open up new interpretations of reality. Exploring subjects as diverse
 as bald eagles, book scanners, DVD screensavers, and storage units, my
 works veer between straightforward attempts to remove the veil of
-autonomy from signifiers, to moments of semiotic play meant to inject
+autonomy from signifiers, and moments of semiotic play meant to inject
 elements of hostility, confusion, disquiet, and the absurd.
 
 My individual projects usually find their locus in some historical or
@@ -27,8 +27,8 @@ in the wake of the Edward Snowden NSA leaks, we are a group of artists
 from various schools and regions whose projects focus on performatively
 researching communications ideology. Organizing primarily through a
 continuously in progress unsent Gmail draft, our collective work has
-allowed me to investigate concepts that are related to themes found in
-my own practice, like the digital post-private self.
+allowed me to investigate concepts related to my own practice, like the
+digital post-private self.
 
 The intention of my work is not to produce new meanings that should be
 read in place of the originals. This would have the same effect
